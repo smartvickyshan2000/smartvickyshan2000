@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @smartvickyshan2000 (@wujishan @smartvickyshan)
-- 👀 I’m interested in doing Manicure by myself, and watching movies.
+- 👀 I’m interested in big data and have great passion in fields of data analysis.
 - 🌱 I’m currently in Master of Science in Statistical Practice at Boston University.
 - 💞️ I’m looking to collaborate on ...
 - 📫 contact me @ smartvickyshan@gmail.com
